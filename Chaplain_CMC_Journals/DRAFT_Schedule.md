@@ -30,13 +30,13 @@
 # 30. Break for repair of church
 # 31. Temple artifacts come out (Decoration)
 # 32. Music clean spirits (Dont let angry or upset people into temple)
-# 33. Security (Barriers, Recruitment, atonemens, confessions, set alter fire, smoke our pycnogonid, VirusTC, burn sick and sacrafice)
+# 33. Security (Barriers, Recruitment, atonemens, confessions, set alter fire, smoke out pycnogonid, VirusTC, burn sick and sacrafice)
 # 34. Frangrence must be mined from farm (plants must be harvested, fruits excluded, vegatable only)
 # 35. Clean all grounds
 # 36. Start replant, prepare food stock, dry starts now, win ROI
 # 37. Sew new ONLY
-# 38. Sports games (with extra NEVER SPOIL FOOD, SALMON IF ALASKA CAN TRANSFER VIA SILK ROAD SULFUR THEY LIKE, NUCLEAR NO VIBE ALLOWED)
-# 39. Round table about new wars if soldiers are not polite from other sports nations. (silk road unite tribes of Israel, MUST HAVE 12 OR GATE WILL NOT OPEN WITH ROMULAN.) No racism.
+# 38. Sports games (with extra NEVER SPOIL FOOD, SALMON IF ALASKA CAN TRANSFER VIA SILK ROAD SULFUR THEY LIKE, NO NUCLEAR NO RADIOACTIVE VIBE ALLOWED)
+# 39. Round table about new wars if soldiers are not polite from other sports nations. (Silk road unite tribes of Israel egypt to Japan to issaquah along lewis and clark trail, to Plymouth rock (mormon gold bible underneath confirmed USMC Command Chaplain), to Europe, (almost like when Europe travels to egypt without silk raod, war comes, like a planet filter.) MUST HAVE 12 (borders allowing through travel) OR GATE WILL NOT OPEN WITH ROMULAN (Romulan does not come without permission to pass port through ALL nations)) No racism.
 # 40. WAR GAMES ONLY, ONLY BEEFING NATIONS, LOSERS GET TURNED INTO CATTLE AND KILLED FOR BURNING
 # 41. Burned offering, ONLY FLEW INFECTED VICTIMS, ELSE EAT WHOLY, ALL PARTS, NATIVES LIKE BONES BROTH, LININGS, ETC, SPACE
 # 42. Returning of WAR nations who lost in games for real war trials. OFFER GAMES BEFORE REAL WAR? NEVER OFFER GAMES IF ENEMY SPANS LARGER THAN OWN FORCES.
